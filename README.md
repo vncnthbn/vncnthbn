@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @vncnthbn
+- 👋 Hi, I’m @vncnthbn Vincent Jose Habon
 - 👀 I’m interested in ... Fitness and Healthy Life Style
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ... the near month or future
